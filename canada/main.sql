@@ -1,0 +1,1 @@
+The Greater Juneau Chamber of Commerce supports economic diversity, encourages entrepreneurship, and endorses responsible, sustainable development to maintain Juneau’s high quality of life while advocating economic vitality for all of Alaska.
